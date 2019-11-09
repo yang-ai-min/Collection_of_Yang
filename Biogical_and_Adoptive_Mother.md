@@ -1,4 +1,3 @@
-# Biogical_and_Adoptive_Mother #
 
 中国有很多俗话说养母要比生母大，比如“养母大于天，生母丢一边”，“生身没有养身大”，“生母不如养母大”，“生的靠一边，养的恩情大过天”等等。养的恩情真的大过天么？生的真的要靠一边么？我却不这么认为。
 从古至今，生母和养母谁大谁小一直有人争论，有人认为是生母大，也有人认为是养母大，而本公子的观点是：   
@@ -34,5 +33,6 @@
 澎湃着中华的声音    
 就算身在他乡也改变不了 
 我的中国心   
+
 July, 7th, 2019, in ZhaoQing, GuangDong     
-By AiMin Yang, a man from YangShan village, JiangXi Province   
+By AiMin Yang, a man from YangShan village, JiangXi Province  
